@@ -1,0 +1,7 @@
+Is any seemingly organic tissue affixed to a Demon. 
+Demons grow continuously as they accumulate blood from external sources. Internal tissues however do not differentiate in the same manner as seen in conventional earth life. They do form a structure quite similar to an intestinal tract, including a stomach with internal teeth which is followed by a sack of tissue folds resembling intestinal tissue. However there are not otherwise distinct to any other tissue of the Demons body.
+Indeed, all Demonic Tissue consists of cells resembling mammalian muscle cells. While these cells seem to be able to form into any known structure of Demonic Tissue, within Demons they form tissue resembling mammalian muscles almost without fail.
+
+External tissue, that is tissue which is exposed to air or [[Demonbreath]], differentiates further into Demoskin, or demonic pseudodermis.
+This skin mimics their flesh closely in colour and texture. In large parts because it is their flesh, merely dried by air contact and toughened by the winds of their home plane. Thin skin in Demons is a likely sign of earthside breeding and is taken as a sign of weakness by other demons who promptly disassemble and imbibe the thinskinned.
+Interestingly however, Demonic Skin and it’s derivatives have been shown to be less permeable to blood than flesh implying the bareness of the intestinal flesh, or a sort of mucous membrane like structure.

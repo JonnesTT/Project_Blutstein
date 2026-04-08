@@ -1,0 +1,3 @@
+Formally known as Demonic Pseudopneuma is believed to be the respiratory product of Demons.
+It is commonly described as having an acrid, sulfurous odour which is said to have filled the air before every documented Demonic Incursion. It is also documented as everpresent in the Plane of Punishment during every excursion there.
+While we can only speculate on its functions, its high acidity and surprising ability to not just erode [[Demonbone]] but dissolve it back into [[Demonblood]] suggests that it is one of the weathering forces within the Plain of Punishment. For the record it does do so with any bone including external skeletons of insects and Foraminifera which once formed some of the beaches of the island of Okinawa.

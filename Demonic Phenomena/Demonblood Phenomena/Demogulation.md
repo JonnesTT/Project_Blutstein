@@ -1,0 +1,3 @@
+Also called blood hardening, false congealing or demogification is the process during which Demonblood solidifies into [[Demonic Tissue]]
+It is seemingly triggered by contact with air, though it is not tested whether Demonblood reacts similarly in a vacuum.
+During this process, the Demonic Material loses a small amount of mass as it boils, excreting Demonbreath, an unknown gas resembling sulfur dioxide in smell in large bubbles.

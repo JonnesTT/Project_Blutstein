@@ -1,0 +1,1 @@
+is the phenomenon of the gravitational pull to leak through dimensions. Currently only measured between [[Hell]] and earth, its effect on this scale is consistently 0.3% of the acceleration that would be expected towards an object in the same dimension.

@@ -1,0 +1,8 @@
+Red Slime, Carnifauna or formally Demonic Natal Matter forms when Demonic Blood is split and does not touch any demon. Samples of [[Demonic Tissue]] smaller than approximately 400g seem to devolve into this state after a delay of roughly 18 to 30 seconds following the removal from a Demons body.
+
+In this case, the blood thickens but does not striate into muscular fiber. The resulting fleshgrowths both cover large amounts of surface area and “grow” stalks upwards against the local surface, if such a thing as growth is the right descriptor for a liquid. 
+The resulting stalks grow both with time and availability of blood yet rarely reach higher than 20 centimeters as in the wild as they tend to be picked up by larger demons.
+Into those it absorbs with a startling speed. Where it takes minutes for [[Demonblood]] and hours for demonic flesh to augment a demon, the Natal Matter of fleshgrowths augments surface musculature and close wounds within seconds.
+Unfortunately for Dr. Stephens, it acts with a similar haste on humans. Should even small amounts of this matter reach any mucous membrane it will bore itself into the victims bloodstream within moments. From there, the [[Sanguilegious Contact|Assimilative Property]] will cause the entire bloodstream to convert within minutes, quickly killing the patient and preparing them for a full transformation.
+
+Any piece of demonic matter or blood-pool more massive than 400g instead forms into a rounded blob after a timespan of up to 3 days. After this time, it rapidly animates, beginning to boil while keeping its shape and forming into a small Demon.
