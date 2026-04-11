@@ -1,6 +1,6 @@
 A translation. The following text is not known to any human.
 
-Bled by betrayal, many fell to the pits of flesh for our taking.` 
+Bled by betrayal, many fell to the pits of flesh for our taking. 
 The refusal to die, I have seen that a hundred times, and a hundred times I thought it queer. 
 Left bloodless the flesh wavers, it's time cut short.
 But this one, this one lived and he fed upon us.
