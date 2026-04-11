@@ -16,4 +16,4 @@ You must however extend the same grace to those who will come after you. Anythin
 However, this license includes an attribution requirement as described in the 4.0 Creative Commons Catalogue.
 
 
-<a href="https://github.com/JonnesTT/Project_Blutstein">Project Blutstein</a> © 2026 by Johannes "JonnesTT" Berger is licensed under <a href="https://creativecommons.org/licenses/by-sa/4.0/">CC BY-SA 4.0</a><img src="https://mirrors.creativecommons.org/presskit/icons/cc.svg" alt="" style="max-width: 1em;max-height:1em;margin-left: .2em;"><img src="https://mirrors.creativecommons.org/presskit/icons/by.svg" alt="" style="max-width: 1em;max-height:1em;margin-left: .2em;"><img src="https://mirrors.creativecommons.org/presskit/icons/sa.svg" alt="" style="max-width: 1em;max-height:1em;margin-left: .2em;">
+<a href="https://github.com/JonnesTT/Project_Blutstein">Project Blutstein</a> © 2026 by Johannes "JonnesTT" Berger is licensed under <a href="https://creativecommons.org/licenses/by-sa/4.0/">CC BY-SA 4.0</a>
